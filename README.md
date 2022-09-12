@@ -1,1 +1,1 @@
-https://Ezpts.github.io/rsschool-cv/cv
+https://Ezpts.github.io/rsschool-cv/
